@@ -1,0 +1,34 @@
+---
+title: "Sheba's Kale & Tofu Stir Fry"
+date: 2026-06-19
+---
+
+My stepmom, Sheba, made this recipe for me when my son was a few months old and it tasted so good yet simple, that I begged her to teach me to make it. This is the recipe that spurred me to learn to cook.
+
+1 cup rice (or grain of choice)
+1 cup water or broth
+
+Cook rice. I use a one button rice cooker. You can add sesame oil and salt, and roasted sesame seeds after it cooks.
+
+1 package extra firm tofu
+Healthy pours of salt, garlic powder, and pepper
+1 tbsp corn starch 
+Splash of olive oil
+
+Press tofu in paper towels for 15 minutes or so. Dice tofu into one inch squares and put in a gallon ziplock. Add salt, garlic powder, and pepper to taste. I do probably a tablespoon of garlic powder, a teaspoon of salt, and ten grinds of pepper. Add a tablespoon of cornstarch. Spread on foil-covered tray and bake at 385 for 25 minutes.
+
+1 tbsp ghee or avocado oil 
+1 diced onion
+2 tbsp minced garlic and ginger 
+2 bunches of Dino kale or greens of your choice, chopped
+2 tbsp water 
+2 tbsp sambal oelek
+2 tbsp coconut aminos
+
+Heat ghee in dutch oven. When melted, add diced onion. Cook on low until some pieces begin to turn translucent. Add minced garlic and ginger. (I batch mince in a food processor. I take 4-5 knobs of garlic and a thumb or finger size of ginger, peel, and food process. Keep in fridge and use as needed during the week.) 
+
+When it smells really good and the onion is completely translucent, add chopped kale, then cover with water, sambal oelek, and coconut aminos. Let sit while the tofu finishes cooking, about 15-20 minutes or so. It's hard to overcook but it can be done. Every 5-10 minutes, I use tongs to turn the greens. 
+
+Combine and enjoy. 
+
+tags: recipes 
